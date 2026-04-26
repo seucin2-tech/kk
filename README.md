@@ -1,3 +1,2 @@
 mario client DDOS ATTACK FREE BETA: https://anotepad.com/notes/r6yqxw76 [beta 0.0.1]
-<img width="188" height="198" alt="image" src="https://github.com/user-attachments/assets/9877c87d-20c3-4990-bf8b-8fbfc5db9af9" />
-
+<img width="1024" height="536" alt="image" src="https://github.com/user-attachments/assets/d3a2043a-7b46-4369-99dc-475e25df4438" />
